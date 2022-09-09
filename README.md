@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jonmv3code
-- 👀 I’m interested in runnging, the gym, games and programming.
+- 👀 I’m interested in running, weightlifting, games and programming.
 - 🌱 I’m currently learning @ NuCamp Bootcampe
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me jonmv3code@gmail.com
